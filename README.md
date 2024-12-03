@@ -14,7 +14,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
  [Chapitre 4](histoire.md)
 
- [Chapitre 5 ](https://github.com/larahjanef/Livre-Collaboratif/blob/main/Histoire-5)
+ [Chapitre 5 ](Histoire-5)
 
  [Chapitre 6](histoire.md)
 
