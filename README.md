@@ -10,7 +10,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
  [Chapitre 2](chapitre-2.md)
 
- [Chapitre 3](chapitre-3.md)
+ [Chapitre 3](#chapitre-3)
 
  [Chapitre 4](chapitre-4.md)
 
