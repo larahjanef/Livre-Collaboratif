@@ -36,4 +36,4 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 Ce projet est sous licence [MIT](LICENSE).
 
 ## **Contact**
-Pour toute question, veuillez contacter [evaalcin026@gmail.com]
+Pour toute question, veuillez contacter [evaalcin026@gmail.com][farahpierre788@gmail.com][larahjanef@gmail.com]
