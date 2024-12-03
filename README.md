@@ -8,7 +8,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
  [Chapitre 1](histoire.md)
 
- [Chapitre 2 ](histoire.md)
+ [Chapitre 2 ](histoire.md#chapitre-2)
 
  [Chapitre 3](chapitre-3.histoire.md)
 
