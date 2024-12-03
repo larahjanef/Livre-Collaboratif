@@ -22,9 +22,9 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 - **Alcin Eva** - Rédaction du Chapitre 1
 
-- **Dorvillien Genephile** - Rédaction du Chapitre 2
+- **Pierre Farah** - Rédaction du Chapitre 2
 
-- **Pierre Farah** - Rédaction du Chapitre 3
+- **Dorvillien Genephile** - Rédaction du Chapitre 3
 
  - **Fevrin Larah Jane** - Rédaction du Chapitre 4
 
