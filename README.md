@@ -6,7 +6,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 **Table des Matières**
 
- [Chapitre 1]((https://github.com/Ev-244/chapitre-1/histoire.md#chapitre-1))
+ [Chapitre 1](https://github.com/Ev-244/chapitre-1/histoire.md#chapitre-1))
 
  [Chapitre 2 ](histoire.md#chapitre-2)
 
