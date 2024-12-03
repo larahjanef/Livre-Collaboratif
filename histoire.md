@@ -1,4 +1,5 @@
  Chapitre 5
+ 
 Les jours qui ont suivi ma rupture avec Lucas ont été un véritable tourbillon d’émotions. La douleur et la tristesse se mêlaient à une détermination renouvelée. Je savais que je ne pouvais pas me laisser submerger par le chagrin, alors j’ai décidé de me concentrer sur moi-même, de reconstruire ma confiance et de retrouver ma force intérieure.
 
  J’ai commencé à passer plus de temps dans mon atelier, entourée de mes pinceaux, de mes toiles et de mes couleurs. La peinture était devenue mon refuge, un espace où je pouvais exprimer mes émotions sans crainte de jugement. J'ai découvert qu'à travers chaque coup de pinceau, je pouvais transformer ma douleur en beauté. Je peignais des paysages vibrants, des portraits de personnes que j’admirais et des abstractions qui reflétaient mon état intérieur. Chaque toile racontait une histoire, une étape de mon parcours vers la guérison.
