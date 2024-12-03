@@ -10,13 +10,13 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
  [Chapitre 2](histoire2.md)
 
- [Chapitre 3](Chapitre-3.md)
+ [Chapitre 3](histoire3.md)
 
- [Chapitre 4](chapitre-4.md)
+ [Chapitre 4](histoire4.md)
 
- [Chapitre 5 ](chapitre-5.md)
+ [Chapitre 5 ](histoire5.md)
 
- [Chapitre 6](chapitre-6.md)
+ [Chapitre 6](histoire6.md)
 
 ## **Contributeurs**
 
