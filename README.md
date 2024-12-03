@@ -6,11 +6,11 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 **Table des Matières**
 
- [Chapitre 1](chapitre-1.md)
+ [Chapitre 1](chapitre-1.histoire.md)
 
- [Chapitre 2 ](chapitre-2.md)
+ [Chapitre 2 ](chapitre-2.histoire.md)
 
- [Chapitre 3](chapitre-3.md)
+ [Chapitre 3](chapitre-3.histoire.md)
 
  [Chapitre 4](chapitre-4.md)
 
