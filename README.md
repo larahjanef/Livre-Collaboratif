@@ -6,9 +6,9 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 **Table des Matières**
 
- [Chapitre 1](chapitre-1.histoire.md)
+ [Chapitre 1](histoire.md)
 
- [Chapitre 2](chapitre-2.histoire.md)
+ [Chapitre 2](chapitre-2.md)
 
  [Chapitre 3](chapitre-3.md)
 
