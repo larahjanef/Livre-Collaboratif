@@ -10,7 +10,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
  [Chapitre 2](histoire2.md)
 
- [Chapitre 3](histoire3.md)
+ [Chapitre 3](Chapitre-3.md)
 
  [Chapitre 4](histoire4.md)
 
