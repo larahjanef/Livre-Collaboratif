@@ -24,7 +24,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 - **Pierre Farah** - Rédaction du Chapitre 2
 
-- **Dorvillien Genephile** - Rédaction du Chapitre 3
+- **Dorvillien Geniphile** - Rédaction du Chapitre 3
 
  - **Fevrin Larah Jane** - Rédaction du Chapitre 4
 
