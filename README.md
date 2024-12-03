@@ -6,7 +6,7 @@ Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
 
 **Table des Matières**
 
- [Chapitre 1](chapitre-1.md)
+ [Chapitre 1](chapitre-1)
 
  [Chapitre 2](chapitre-2.md)
 
