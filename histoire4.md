@@ -1,4 +1,10 @@
-## *Chapitre 4* 
+<div align="center">
+
+<h1><b><i>LES OMBRES DE L'AMOUR</i></b></h1>
+
+</div>
+
+# Chapitre 4
 
 Le printemps avait doucement laissé place à l’été, et avec lui, une nouvelle lumière baignait ma 
 vie. Lucas et moi étions maintenant en couple depuis plusieurs mois, chaque jour apportant son
