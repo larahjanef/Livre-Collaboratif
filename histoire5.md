@@ -1,3 +1,9 @@
+<div align="center">
+
+<h1><b><i>LES OMBRES DE L'AMOUR</i></b></h1>
+
+</div>
+
 # Chapitre 5
 Les jours qui ont suivi ma rupture avec Lucas ont été un véritable tourbillon d’émotions. La douleur et la tristesse se mêlaient à une détermination renouvelée. Je savais que je ne pouvais pas me laisser submerger par le chagrin, alors j’ai décidé de me concentrer sur moi-même, de reconstruire ma confiance et de retrouver ma force intérieure.
 
