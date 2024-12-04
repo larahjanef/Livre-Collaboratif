@@ -1,4 +1,11 @@
-## **Chapitre 3**
+<div align="center">
+
+<h1><b><i>LES OMBRES DE L'AMOUR</i></b></h1>
+
+</div>
+
+# Chapitre 3
+
 
 Les jours qui ont suivi cette soirée au feu de camp étaient une montagne russe d’émotions. Chaque matin, je me réveillais avec un mélange d’excitation et d’appréhension à l’idée de la fête de ce week-end. Mon cœur battait plus vite à chaque pensée de Lucas, de son sourire chaleureux et de la promesse d’une nouvelle expérience. Mais une partie de moi était toujours paralysée par la peur. Que se passerait-il si tout cela n’était qu’un rêve ? Si la réalité me ramenait à la solitude et à l’angoisse ?
 
