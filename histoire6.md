@@ -43,3 +43,12 @@ La fin de cette journée marqua le début d'un nouveau chapitre pour eux deux. I
 
 En se couchant ce soir-là, Zoé se sentait remplie d'espoir. Elle avait appris à s'accepter et à aimer sa vie, et Lucas avait montré qu'il était prêt à être à ses côtés, peu importe les défis qui les
 attendaient. L'avenir était incertain, mais il était aussi plein de promesses.
+
+
+
+
+<div align="center">
+
+<h1><b><i>FIN</i></b></h1>
+
+</div>
