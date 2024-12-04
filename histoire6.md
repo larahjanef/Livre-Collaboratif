@@ -1,4 +1,10 @@
-##   Chapitre 6 
+<div align="center">
+
+<h1><b><i>LES OMBRES DE L'AMOUR</i></b></h1>
+
+</div>
+
+# Chapitre 6
 
 Les jours qui ont suivi la visite de Lucas ont été une montagne russe d'émotions pour Zoé. Elle se retrouvait à jongler entre la peur de revivre une douleur passée et l'espoir d'une réconciliation.
 Chaque matin, elle se levait avec le poids des souvenirs, mais aussi avec une nouvelle détermination à explorer ce que son cœur lui disait.
