@@ -10,20 +10,31 @@ Pendant ce temps, Lucas était dévasté par cette séparation. Chaque jour sans
 Chaque fois qu'il se retrouvait avec ses amis, il n’entendait que des plaisanteries sur le défi qu’ils avaient lancé, mais cela ne le faisait plus rire. Au contraire, cela creusait une plaie béante dans son cœur. Il avait laissé ses amis influencer ses actions, mais il ne pouvait plus ignorer la vérité. Il avait besoin de Zoé dans sa vie.
 Un soir, alors qu’il se tenait seul dans sa chambre, il prit une décision. Il devait parler à Zoé, lui expliquer ce qu’il ressentait réellement et lui faire comprendre qu’il n’avait jamais voulu la blesser. Il hésita un moment, se demandant si elle voudrait même l’écouter. Mais il savait qu’il devait essayer.
 Le lendemain, il se rendit à son atelier, le cœur battant. Il frappa à la porte, et un instant, il craignit que Zoé ne veuille pas lui ouvrir. Mais elle le fit, les yeux surpris mais les traits marqués par une lueur de détermination.
+
 *« Lucas... »* commença-t-elle, mais il la coupa, le regard intense.
 
  *« Zoé, attends. Je dois te parler, »* dit-il, sa voix tremblante.
+ 
 Elle le regarda, hésitante, mais ne l'arrêta pas. Il entra dans l’atelier, observant les toiles vibrantes qui l’entouraient. Chaque couleur, chaque coup de pinceau représentait une part d’elle, une part qu’il avait appris à aimer.
+
 *« Je suis venu te dire que je ne voulais pas te blesser. Je ne voulais pas que notre relation commence sur des mensonges. J’ai réalisé que mes sentiments pour toi sont réels. Je suis tombé amoureux de toi, Zoé. Bien au-delà de ce défi. »*
+
 Ses mots flottaient dans l’air, lourds de signification. Zoé, surprise, croisa les bras, mais ne détourna pas le regard.
+
 *« Lucas, tu sais que ça ne change rien. La vérité est que tu es arrivé dans ma vie pour un défi, et cela me fait douter de la sincérité de tout ce que nous avons partagé. »*
+
 *« Non, ça ne devrait pas. Je suis désolé d'avoir laissé ce défi influencer mes actions. Je comprends maintenant que j’ai été stupide. Je ne me souciais que de prouver quelque chose à mes amis, mais je me suis rendu compte que ce que je ressens pour toi est bien plus important que tout cela. »*
+
 Il marqua une pause, cherchant les mots justes. *« Tu es incroyable, Zoé. Ton art, ta force, ta beauté intérieure. Je ne veux pas perdre cela. Je veux que tu me donnes une chance de te prouver que je suis sérieux. »*
+
 Les larmes aux yeux, Zoé écoutait attentivement. Les mots de Lucas résonnaient en elle, mais la peur demeurait. Elle avait tant souffert et il était difficile de laisser cette douleur derrière elle.
+
 *« Je... je ne sais pas si je peux. J’ai peur de souffrir à nouveau, Lucas. J’ai mis tant de temps à reconstruire ma confiance. »*
+
 Lucas se rapprocha, son regard sincère ancré dans le sien. *« Je comprends, et je ne te demande pas de tout pardonner tout de suite. Mais je te promets que je ferai tout pour te prouver ma sincérité. Je veux être là pour toi, pour le meilleur et pour le pire. »*
 Zoé sentit son cœur se serrer. Elle savait qu'elle devait prendre une décision. La peur de l’abandon, de la douleur, était toujours présente, mais la sincérité de Lucas était palpable. Peut-être que cette fois, elle pouvait se permettre de croire à nouveau, de laisser place à l’amour.
 
  *« Je vais réfléchir, Lucas, »* finit-elle par dire, sa voix tremblante mais ferme. *« Je ne peux pas te promettre quoi que ce soit pour l’instant. »*
 Il acquiesça, reconnaissant. *« Je comprends. Je serai là, peu importe le temps que cela prendra. »*
+
 Alors qu’il sortait de l’atelier, Zoé se sentait à la fois confuse et soulagée. Peut-être que le chemin vers la guérison et la confiance serait long, mais elle savait maintenant qu’elle n’était pas seule. Les ombres de son passé commençaient lentement à se dissiper, laissant entrevoir la lumière d’un avenir incertain, mais rempli d’espoir.
