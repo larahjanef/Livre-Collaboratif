@@ -1,4 +1,10 @@
-## **LES OMBRES DE L'AMOUR* ; Chapitre 1*
+<div align="center">
+
+<h1><b><i>LES OMBRES DE L'AMOUR</i></b></h1>
+
+</div>
+
+# Chapitre 1
 
 Il y a des jours où même le soleil semble hésiter à se lever, comme s'il pesait le poids des secrets et des douleurs qui l'accompagnent. Ce matin-là, je me suis réveillée avec une sensation de lourdeur dans ma poitrine, une angoisse sourde que je n’arrivais pas à expliquer. Mon nom est Zoé, et je suis une jeune fille de dix-sept ans qui vit en marge de ce monde que les autres semblent arpenter avec tant d’aisance. Suite à un accident tragique, je suis devenue une personne à mobilité réduite, et ce mot, "handicap", résonne en moi comme une malédiction, un poids que je porte depuis trop longtemps.
 Je me suis levée de mon lit, en ajustant ma position dans mon fauteuil roulant. Chaque mouvement était un rappel de ma nouvelle réalité. Mon corps, autrefois plein d'énergie, était devenu un étranger. Je me suis regardée dans le miroir, cherchant désespérément la force que je savais enfouie quelque part en moi. Mes cheveux, en désordre, encadraient un visage que je ne reconnaissais plus. Ce reflet, c'était celui d'une fille qui se sentait piégée dans sa propre peau, et je ne pouvais m’empêcher de me demander si j’allais un jour en sortir.
