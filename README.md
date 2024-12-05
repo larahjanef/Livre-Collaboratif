@@ -1,5 +1,7 @@
 # Livre-Collaboratif 
 
+![Couverture du Livre](https://img.freepik.com/photos-gratuite/portrait-couple-abstrait-effets-lumiere_23-2151118202.jpg)
+
 ## **Description du Projet**
 
 Bienvenue dans notre projet de **Livre Numérique Collaboratif**.
