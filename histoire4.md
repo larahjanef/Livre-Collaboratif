@@ -4,7 +4,10 @@
 
 </div>
 
-# Chapitre 4
+# Chapitre IV 
+
+### *Les ombres du passé*
+
 
 Le printemps avait doucement laissé place à l’été, et avec lui, une nouvelle lumière baignait ma 
 vie. Lucas et moi étions maintenant en couple depuis plusieurs mois, chaque jour apportant son
