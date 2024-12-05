@@ -1,4 +1,7 @@
-## **Chapitre 2**
+# Chapitre II 
+
+### *Une rencontre inattendue*
+
 *Le crépitement du feu de camp et les rires des adolescents résonnaient dans l'air frais de la nuit, créant une atmosphère qui semblait presque magique. Je suis restée en retrait, à quelques pas du groupe, me sentant à la fois fascinée et terrifiée. Leurs visages illuminés par les flammes projetaient des ombres dansantes, mais pour moi, tout cela semblait si lointain, comme un rêve dont je ne pourrais jamais faire partie.*
 
 Je savais que je ne devrais pas être là. Mes pensées tourbillonnaient, me poussant à faire demi-tour, à retourner à la sécurité de ma chambre et de mes toiles. Mais une partie de moi, celle qui avait désespérément besoin de connexion, me poussait à avancer. J’ai pris une profonde inspiration, sentant l’odeur de la terre humide et le parfum des feuilles qui flottaient dans l’air. C’était comme si la nature elle-même m’encourageait à faire le pas.
